@@ -3,7 +3,7 @@
 # 许章润非官方言论集
 ![xuzhangrun](https://i.imgur.com/ooPvQj3.jpg)
 
-[要求清华大学立即恢复许章润教授工作的公开信](https://xu291.github.io/)
+[要求清华大学立即恢复许章润教授工作的公开信](https://xu291.github.io/) (欢迎加入签名，永久开放，持续更新)
 
 ---
 ## 时评
