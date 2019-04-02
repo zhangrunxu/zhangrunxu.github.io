@@ -92,7 +92,8 @@
 ## 座右铭 
 半日静坐，半日读书；宽其程限，紧着工夫。
 
-## 源
+## 相关链接
 1. [维基百科：许章润](https://zh.wikipedia.org/zh-hans/%E8%AE%B8%E7%AB%A0%E6%B6%A6)
 2. [清华大学法学院网站许章润简介](http://www.tsinghua.edu.cn/publish/law/3563/2010/20101220194652775652930/20101220194652775652930_.html)
 3. [xuzhangrun.gitlab.io](https://xuzhangrun.gitlab.io)
+4. [要求清华大学立即恢复许章润教授工作的公开信](https://xu291.github.io/) (欢迎加入签名，永久开放，持续更新)
