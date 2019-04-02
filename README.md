@@ -3,6 +3,8 @@
 # 许章润非官方言论集
 ![xuzhangrun](https://i.imgur.com/ooPvQj3.jpg)
 
+[要求清华大学立即恢复许章润教授工作的公开信](https://xu291.github.io/)
+
 ---
 ## 时评
 1. [許章潤：中國不是一個紅色帝國（上篇：誤入歧途的潛在勢能）](https://theinitium.com/article/20190110-opinion-xuzhangrun-china-red-empire-1/), 端传媒, 2019-01-10
